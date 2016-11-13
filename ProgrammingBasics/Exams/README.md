@@ -1,1 +1,1 @@
-Exxams for this course
+Exams for this course
